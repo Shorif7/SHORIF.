@@ -1,2 +1,4 @@
 # SHORIF.
-Hack any account ☠️
+
+
+cd shorifvai01
