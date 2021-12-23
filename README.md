@@ -1,0 +1,2 @@
+# SHORIF.
+Hack any account ☠️
